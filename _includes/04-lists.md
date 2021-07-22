@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Make home made bread 
+- Learn things of Nature 
+- Watch comedy series
